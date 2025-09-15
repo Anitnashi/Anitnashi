@@ -30,4 +30,4 @@ Business Systems: SAP ByDesign, ERP
 Other: Problem-Solving, Business Process Optimization
 
 📫 Let’s Connect
-LinkedIn: www.linkedin.com/in/anitnashi         | Email: anitnashi@gmail.com
+LinkedIn: www.linkedin.com/in/anitnashi         | Email: anitnashi8@gmail.com
